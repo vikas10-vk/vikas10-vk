@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am final year student passing out in may, 2026 <br>
+I am a Graduated in Computer Science & Engineering <br>
 
 
 ## 🌐 Socials:
